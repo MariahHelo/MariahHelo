@@ -9,7 +9,7 @@ Meu nome é *Maria Heloísa*
 
 ✨**Utilizo este espaço para organizar e compartilhar os meus projetos📍** ✨
 
-### Você pode entrar em contato comigo 📬 ⌨️
+### Você pode entrar em contato comigo  ⌨️
 
 [mariahhbt23@gmail.com](mariahhbt23@gmail.com)
 
